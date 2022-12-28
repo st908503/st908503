@@ -1,4 +1,5 @@
 - 👋 Hi, I’m Shashank Tripathi
 - 🖥️ I’m a Frontend Developer
-- 📫 You can reach me via my email -  caspersky700@gmail.com
+- 📫 Email- caspersky700@gmail.com
+- 📞 Mobile no - 8319298374
 
