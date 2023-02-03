@@ -6,5 +6,4 @@
 - Linkedin - https://www.linkedin.com/in/shashank-tripathi-702b041ba/
 - Instagram- https://www.instagram.com/stsketches_98/
 - Twitter - https://twitter.com/shashankt_98
--
 
